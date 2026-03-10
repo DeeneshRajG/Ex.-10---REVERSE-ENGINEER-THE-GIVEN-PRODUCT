@@ -33,6 +33,8 @@
 ## Input:
 
 ### Output:
+![WhatsApp Image 2026-03-10 at 10 40 21](https://github.com/user-attachments/assets/b6c2c855-0118-427a-ba41-165e81957430)
+
 
 
 ### Name:DEENESH RAJ G
